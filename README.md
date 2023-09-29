@@ -1,1 +1,1 @@
-# Bom-t-n-i-kh-ng-b-t-ng-
+Bom tấn đối kháng bất ngờ - Lỗi phát sinh này đang khiến cho không ít game thủ phải cảm thấy khó chịu. - https://gamek.vn/bom-tan-doi-khang-bat-ngo-gap-loi-sieu-di-tu-dong-gay-bat-loi-cho-game-thu-neu-chon-team-2-17823092911454741.chn
